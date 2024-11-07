@@ -50,5 +50,4 @@ winrar mac crack
 
 winrar password crack
 
-
-This project provides a cracked version of Microsoft office , enabling users to use the premium features without purchasing a license!
+This project provides a cracked version of WinRaR , enabling users to use the premium features without purchasing a license!
